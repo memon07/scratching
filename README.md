@@ -1,1 +1,1 @@
-# scratching
+# time waste , meaning less !
